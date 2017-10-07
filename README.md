@@ -25,16 +25,16 @@
 
 [**12群 *666304726***](http://shang.qq.com/wpa/qunwpa?idkey=bc364bd429bab4243a51a19b34cd87967b3849e8a602abdcdb541d8b61c54512) 已满 500人群
 
-[**13群 *289221577***](http://shang.qq.com/wpa/qunwpa?idkey=b51dae7e1c12d670e7a20d92892ec93cd50b5fd45dc0c165fcb07b07b930e0e0) **即将要满** 500人群
+[**13群 *289221577***](http://shang.qq.com/wpa/qunwpa?idkey=b51dae7e1c12d670e7a20d92892ec93cd50b5fd45dc0c165fcb07b07b930e0e0) 已满 500人群
 
 [**14群 *289206397***](http://shang.qq.com/wpa/qunwpa?idkey=b30ca5ea21e046a02aea6d3bd4de42083c41d4cc27dbf66fdec4c2f32c1f0cda) 已满 500人群
 
 [**15群 *645995437***](http://shang.qq.com/wpa/qunwpa?idkey=bf7c04d5794cf3eb6d5c4e16fd68477fa9513f31e5a7c4784a129f9ad5c8eec3) 已满 500人群
 
-[**16群 *463477275***](https://jq.qq.com/?_wv=1027&k=5x6mBrC) **未满可加** 500人群
+[**16群 *463477275***](https://jq.qq.com/?_wv=1027&k=5x6mBrC) 已满 500人群
 
 [**17群 *463572943***](https://jq.qq.com/?_wv=1027&k=5QqVFUD) **未满可加** 500人群
 
 [**18群 *464139099***](https://jq.qq.com/?_wv=1027&k=5XNiSar) **未满可加** 500人群
 
-[**19群 *450889570***](https://jq.qq.com/?_wv=1027&k=5lnsB3Q) **未满可加** 500人群
+[**19群 *450889570***](https://jq.qq.com/?_wv=1027&k=5lnsB3Q) **即将要满** 500人群
