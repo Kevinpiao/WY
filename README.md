@@ -58,3 +58,4 @@
 # 其他
 为什么要抵制网易MC？请见(下拉中文)：
 (https://github.com/MinecraftChinaPlayer/Dear-Mojang)
+    请记住，网易不倒开挂到老，不开挂，不网易，每日持续更新！
