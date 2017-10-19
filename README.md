@@ -53,5 +53,7 @@
 
 [**19群 *450889570***](https://jq.qq.com/?_wv=1027&k=5lnsB3Q) 已满 500人群
 <br>------------------------------------------------------------<br>
-#其他
-[为什么要抵制网易MC？请见(下拉中文)：] (https://github.com/MinecraftChinaPlayer/Dear-Mojang)
+
+# 其他
+为什么要抵制网易MC？请见(下拉中文)：
+(https://github.com/MinecraftChinaPlayer/Dear-Mojang)
