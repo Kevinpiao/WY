@@ -1,4 +1,4 @@
-# WY_gunchuZG 群号列表
+# WY_gunchuMC 群号列表
 
 
 [**1群 *552624894***](https://jq.qq.com/?_wv=1027&k=5C2h8nz) 已满 大佬群 2000人群
